@@ -1,1 +1,1 @@
-Delete all factory reset done 
+Delete account permanently closed 
